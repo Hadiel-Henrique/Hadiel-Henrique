@@ -6,4 +6,6 @@
 
 🎓 Estudante de Ciência da Computação   
 
-🚀 Sempre aprendendo e desenvolvendo novas habilidades na área de tecnologia.
+🚀 Sempre aprendendo e desenvolvendo novas habilidades na área de tecnologia  
+
+📌 [Linkedin](https://www.linkedin.com/in/hadiel-henrique/)
